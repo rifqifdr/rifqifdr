@@ -1,1 +1,1 @@
-Product Manager & Product Design Lead at lingkaran
+Product Manager & Product Design Lead at StickEarn
