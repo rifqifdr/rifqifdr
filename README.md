@@ -1,1 +1,1 @@
-Product Manager & Product Design Lead at StickEarn
+Product Manager at StickEarn
